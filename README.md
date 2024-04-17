@@ -6,3 +6,4 @@
 美耳 https://github.com/bit-trade-one/ADBMM
 
 詳細は以下
+https://drroot.page/wp/?p=355
